@@ -1,2 +1,2 @@
-# Faceless(finals)
-to play go to https://brim-crown.itch.io/faceless
+Facelees Incoming Game project 
+Still working to make this game complete soon (Still working process) By: John Mark N Baptista
